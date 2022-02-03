@@ -1,4 +1,4 @@
-## Oi, bem vindo! Eu Sou Hakkinen Diniz
+## Oi 🤙🏾 Eu Sou Hakkinen Diniz!
 
 <div align="center">
   <a href="https://github.com/DiniZ44">
